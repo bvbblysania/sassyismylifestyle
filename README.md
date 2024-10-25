@@ -1,1 +1,1 @@
-sassyismylifestyle by sania ashraf
+sassyismylifestyle-sania ashraf
